@@ -2,6 +2,15 @@
 
 ## lokal guide (need fixes): https://aibolem.github.io/mini-tokyo-d3e/docs/master/index.html
 
+[![image](https://github.com/user-attachments/assets/d39fcf88-36c4-4ba2-bb8f-f89cf2539923) 森ビル株式会社](https://www.youtube.com/watch?v=4iGNTegpLZI)
+
+[![image](https://github.com/user-attachments/assets/840abb04-ff94-466c-adbd-46f76a2fab92)
+](https://www.youtube.com/watch?v=4iGNTegpLZI)
+
+https://www.youtube.com/watch?v=4iGNTegpLZI
+
+![image](https://github.com/user-attachments/assets/01e12e95-d271-44f6-aebb-fea811a117bd)
+
 
 # Mini Tokyo 3D
 
